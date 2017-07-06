@@ -1,0 +1,1 @@
+# guld-logo-set-without-background
